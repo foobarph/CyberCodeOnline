@@ -1,2 +1,1 @@
-Loose bolts, bits of wires and some glowing parts that you are pretty sure you should not open, all what remains of whatever you chose to dissasemble.
-It's not much now but if you manage to get enough of it together, you should be able to build something cool with it.
+Loose bolts, bits of wires and some glowing parts that you are pretty sure you should not open, all what remains of whatever you chose to disassemble. You feel a certain sense of accomplishment as you scrap it all for parts, maybe you can even sell it for a pretty penny. But more importantly, you have learnt something new and hoping to create something out of it.
